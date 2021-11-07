@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Nouvelle-Zelande
+- 👀 I’m interested in Cybersecurity
+- 🌱 I’m currently learning Programming at NCEA L1
+- 📫 How to reach me Nouvelle-Zelande#6154 on Discord
